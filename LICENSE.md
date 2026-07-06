@@ -1,4 +1,4 @@
-# 
+# Open Source Sejda PDF templates for Mac OS | Premium Sejda PDF templates for PC Windows. Featuring multi-device support and irs e-file — optimized for maximum performance on every platform.
 
 
 
